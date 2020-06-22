@@ -1,1 +1,2 @@
 Jessica Albert
+alberjes@oregonstate.edu
